@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @jamesromanov
-- 👀 I’m interested in basketball and programming reading books 
+- 👀 I’m interested in basketball and programming reading books and coding
 - 🌱 I’m currently learning JS
-- 💞️ I’m looking to collaborate on FAANG
+- 💞️ I’m looking to collaborate on Mironshoh1603 my teacher!!
 - 📫 How to reach me qahramonovjamshid1@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: im ever so ambitious
